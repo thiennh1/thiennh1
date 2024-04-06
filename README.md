@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @thiennh1
-- 👀 I’m interested in football
 - 🌱 I’m currently learning Information System at UIT
 - 📫 How to reach me: https://www.facebook.com/huuthiennnnn/
 
